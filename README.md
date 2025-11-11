@@ -70,8 +70,7 @@ END
 
 **Manual Calculations:**  
 
-![WhatsApp Image 2025-10-24 at 04 09 13_a26e72f9](https://github.com/user-attachments/assets/37412412-5f37-4d60-821e-38e5b0e574e2)
-
+![WhatsApp Image 2025-11-11 at 17 43 14_f67605b0](https://github.com/user-attachments/assets/e7d375c4-9141-479f-8b49-0135d4cb2bae)
 
 
 
